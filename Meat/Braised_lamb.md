@@ -4,8 +4,8 @@
 
 ### Fresh
 * (3 lbs) Lamb
-* Ginger (about 5g sliced)
-* Garlic (about 5g sliced)
+* (about 5g sliced) Ginger
+* (about 5g sliced) Garlic
 
 ### Spices
 * (1pc) Cinnamon stick
