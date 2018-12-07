@@ -11,7 +11,7 @@
 * (1pc) Cinnamon stick
 * (2pc) Bay leaf
 * (2pc) Star anise
-* (4pc) Dried whole hot peppers
+* (4pc) Dried hot chili peppers
 
 ### Sauces and etc
 * (1/3 cc) Soy sauce
