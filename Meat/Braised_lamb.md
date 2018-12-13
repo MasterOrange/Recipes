@@ -3,17 +3,17 @@
 ## Ingredients
 
 ### Fresh
-* (3 lbs) Lamb
+* (3 lbs) Lamb, doesn't matter which part
 * (about 5g sliced) Ginger
 * (about 5g sliced) Garlic
 
 ### Spices
-* (1pc) Cinnamon stick
-* (2pc) Bay leaf
-* (2pc) Star anise
-* (4pc) Dried hot chili peppers
+* (1 pc) Cinnamon stick
+* (2 pc) Bay leaf
+* (2 pc) Star anise
+* (1 tsp) Dried hot chili peppers
 
-### Sauces and etc
+### Sauces and etc.
 * (1/3 cc) Soy sauce
 * (1 tbsp) Cooking wine (mirin, sake, wine, Shaoxin etc.)
 * (2 tbsp) Sugar (can use honey, brown sugar)
