@@ -27,4 +27,4 @@
 
 ### Finished!
 
-![Tadaa!](./Pics/granola3)
+![Tadaa!](./Pics/granola3.jpg)
